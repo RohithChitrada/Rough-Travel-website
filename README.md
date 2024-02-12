@@ -1,0 +1,1 @@
+![Screenshot (8)](https://github.com/RohithChitrada/Rough-Travel-website/assets/120176158/ab245cb1-72cb-4349-a1e8-1452cb471c60)![Screenshot (8)](https://github.com/RohithChitrada/Rough-Travel-website/assets/120176158/8e2aa188-4793-4380-92a9-bfc87ea880ee)
